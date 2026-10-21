@@ -1,4 +1,4 @@
-## Hi I'm intan vitriani👋
+Just a little girl growing up here 💫
 
 
 <!--
